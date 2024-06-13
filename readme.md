@@ -1,1 +1,1 @@
-hecho por Candela y Facu
+hecho por Candela
